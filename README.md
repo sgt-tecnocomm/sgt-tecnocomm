@@ -1,1 +1,1 @@
-Tecnocomm Systems
+Sistema de Gestión Tecnocomm
